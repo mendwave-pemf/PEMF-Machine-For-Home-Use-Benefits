@@ -32,7 +32,7 @@ For people interested in targeted PEMF technology, [MendWave PEMF](https://www.g
 
 For additional information about PEMF machines, home PEMF therapy, and targeted PEMF technology:
 
-**[Visit MendWave – PEMF Machine for Home Use](https://www.getmendwave.com/)**
+**[Visit MendWave – PEMF Machine for Home Use](https://getmendwave.com/products/pemf-machine-for-home-use)**
 
 ---
 
